@@ -7,7 +7,7 @@
 
 - 📫 Contact Me **workwithanmolpandey@gmail.com**
 
-- 📄 Know about my experiences [http://surl.li/jxnde](http://surl.li/jxnde)
+- 📄 Resume:-  [http://surl.li/jxnde](http://surl.li/jxnde)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
